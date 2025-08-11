@@ -1,1 +1,1 @@
-# MBA em inteligencia artificial
+MBA em inteligencia artificial
