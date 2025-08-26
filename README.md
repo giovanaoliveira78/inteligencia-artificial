@@ -1,1 +1,1 @@
-# MBA em inteligencia artificial - Líbano
+# MBA em inteligencia artificial
